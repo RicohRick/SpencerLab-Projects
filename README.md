@@ -1,0 +1,2 @@
+# SpencerLab-Projects
+https://worknhire.com/Users/Portfolio Lets manage projects together through an easy to use platformI like to work with a team of high dedicated and motivated individuals with experience in Academic writing. I work on PROJECT &amp; OPERATIONS MANAGEMENT using GEOSCIENCE as ANALYTICAL TOOL for informed decisions in EPIDEMIOLOGY, PUBLIC HEALTH MANAGEMENT and Biotechnology. Some of the recent projects include SENTINEL HUB Contests, Surface-Seismic Measurement for Geological Decisions in Kenya.
